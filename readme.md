@@ -1,0 +1,1 @@
+Hi Proffesor, Thank you for sharing the videos of interest in discord, following the news of China coming up with their own AI system, the idea that they might be working with stolen extraterristrial technology doesnt seem to far off. 
